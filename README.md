@@ -1,6 +1,6 @@
 'Welcome, welcome to sebbyz aka my read me<!' 
 'i'll make this short for ya please wait, , , ,'
-~    `    !   ~    ~  !   ~   1   ~   !   ~   !   ~  !   ~  !   
+~    `    !   ~    ~  !   ~   1   ~   !   ~   !   ~  !   ~  !   pluh,
   ' '   i n   p0ny town these are some do's and doNts!
 
 .  . ,  +dont: randomly sit next to me if at the moment my name doesn't appear to have 'c+H or int.' ,  ,  ,  
